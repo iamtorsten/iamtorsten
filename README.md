@@ -5,7 +5,7 @@
 
 - 👯 I’m looking to collaborate on [libfintx](https://github.com/libfintx/libfintx)
 
-- 💬 Ask me about **Smart finance!**
+- 💬 Ask me about **Smart Finance!**
 
 - 📫 How to reach me **torsten.klinger@googlemail.com**
 
