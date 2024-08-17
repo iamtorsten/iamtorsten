@@ -7,5 +7,7 @@
 
 - 💬 Ask me about **Smart Finance!**
 
-- 📫 How to reach me **torsten.klinger@googlemail.com**
+- 📫 How to mail me **torsten.klinger@googlemail.com**
+
+- 📩 How to chat with me [Signal Messenger: **iamtorsten.68**](https://signal.me/#eu/mo5BMKR_y_K3CsQkm_t1SQ6eMbcKGTI4ib2nSlvENQZdALN35aRBR7OIXuMZdfVz)
 
