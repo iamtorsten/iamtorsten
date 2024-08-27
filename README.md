@@ -7,7 +7,8 @@
 
 - 💬 Ask me about **Smart Finance and Cyber Security!**
 
-- 📫 How to mail me **torsten.klinger@googlemail.com**
+- 📫 How to mail me ➡️ **torsten.klinger@googlemail.com**
 
-- 📩 How to chat with me [Skype](https://join.skype.com/invite/ErVkPMTQZExQ)
+- 📩 How to chat with me ➡️ [Skype](https://join.skype.com/invite/ErVkPMTQZExQ)
 
+- 💬 How to message me ➡️ [Telegram](https://t.me/iamtorsten)
